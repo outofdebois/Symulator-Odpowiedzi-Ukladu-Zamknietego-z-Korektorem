@@ -1,0 +1,1 @@
+# Symulator-Odpowiedzi-Ukladu-Zamknietego-z-Korektorem
